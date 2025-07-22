@@ -1,1 +1,0 @@
-# saverush-clothing-app
